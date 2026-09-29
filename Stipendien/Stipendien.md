@@ -174,7 +174,7 @@ Neben Stipendien können Studium und Promotion auch über Beschäftigungsverhäl
 
 # Ansprechpersonen und Mentoring
 
-Eine Stipendienbewerbung muss nicht allein bewältigt werden. An der CAU und am Philosophischen Seminar stehen verschiedene Unterstützungsangebote zur Verfügung. Damit Beratungsgespräche möglichst zielführend sind, sollten diesen eine erste Selbsteinschätzung sowie eine eigenständige Recherche vorausgehen. Die auf dieser Webseite dargestellten Eignungsdimensionen und Hinweise zum Bewerbungsprozess dienen hierfür als Orientierung. Für die Vorbereitung kann zudem der Fragebogen zur Selbsteinschätzung für Stipendienbewerbungen genutzt werden: [Link Fragebogen]. 
+Eine Stipendienbewerbung muss nicht allein bewältigt werden. An der CAU und am Philosophischen Seminar stehen verschiedene Unterstützungsangebote zur Verfügung. Damit Beratungsgespräche möglichst zielführend sind, sollten diesen eine erste Selbsteinschätzung sowie eine eigenständige Recherche vorausgehen. Die auf dieser Webseite dargestellten Eignungsdimensionen und Hinweise zum Bewerbungsprozess dienen hierfür als Orientierung. Für die Vorbereitung kann zudem der [Fragebogen](https://www.philsem.uni-kiel.de/de/studium-und-lehre/fragebogen) zur Selbsteinschätzung für Stipendienbewerbungen genutzt werden. 
 
 **Vertrauensdozent:innen der Begabtenförderungswerke**
 
