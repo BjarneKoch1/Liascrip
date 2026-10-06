@@ -190,6 +190,6 @@ Auch die Lehrenden des Philosophischen Seminars können bei Fragen zu Fördermö
 
 Die Fachschaft unterstützt Studierende bei Fragen rund um Stipendien, Fördermöglichkeiten und Bewerbungsverfahren. Zudem kann sie bei der Vernetzung mit Studierenden helfen, die bereits Erfahrungen mit Stipendienbewerbungen und Auswahlverfahren gesammelt haben. Für Fragen und Anregungen steht die Fachschaft sowohl vor Ort im Philosophischen Seminar (EG, Raum 37) als auch per E-Mail zur Verfügung: fs-philosophie@email.uni-kiel.de.
 
-*Mentoringprogramm*
+**Mentoringprogramm**
 
 Wer sich nach einer ersten Recherche für eine Bewerbung entscheidet, kann am Mentoringprogramm teilnehmen. Die Fachschaft vermittelt Kontakte zu Studierenden, Promovierenden und Absolvent:innen mit Erfahrungen in Stipendienbewerbungen und Auswahlverfahren. Ziel ist die Unterstützung bei konkreten Fragen und Herausforderungen im Bewerbungsprozess. Gleichzeitig freuen wir uns über weitere Mentor:innen, die ihre Erfahrungen an zukünftige Bewerber:innen weitergeben möchten. Wer am Mentoringprogramm teilnehmen möchte, sei es als Bewerber:in oder als Mentor:in, wird gebeten, Kontakt mit der Fachschaft aufzunehmen.
